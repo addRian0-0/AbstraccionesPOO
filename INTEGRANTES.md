@@ -9,3 +9,4 @@
 - Flores Zamora Ithan Adrian 
 - Martínez Cruz Giovanni Uzai 
 - Sánchez Hidalgo Sonia 
+- Sostenes Mendez Jherom Luigy 
